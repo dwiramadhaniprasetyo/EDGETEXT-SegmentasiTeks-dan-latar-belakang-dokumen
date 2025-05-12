@@ -1,0 +1,1 @@
+# EDGETEXT-SegmentasiTeks-dan-latar-belakang-dokumen
